@@ -1,4 +1,4 @@
 <p align="center"> JIGENㅤ🂡 ㅤHE/HIM
 ‎<p align="center"> 20     ''   Spiritual Kin
-  
-<p align="center"> ![img](https://i.ibb.co/fdMLLJPr/jig-github.png)
+
+![img](https://i.ibb.co/fdMLLJPr/jig-github.png)
