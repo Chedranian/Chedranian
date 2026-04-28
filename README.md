@@ -6,3 +6,4 @@
 </p>
 
 <p align="center"> ©key-rk
+<p align="center"> ─ ⊹ ⊱ ⊰ ⊹ ─
