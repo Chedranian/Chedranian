@@ -1,5 +1,5 @@
-<p align="center"> JIGENㅤ🂡 ㅤHE/HIM
-‎<p align="center"> 20     ''   Spiritual Kin
+<p align="center"> JIGEN 🂡 HE/HIM
+‎<p align="center"> 20   ''   Spiritual Kin
 
 <p align="center">
   <img src="https://i.ibb.co/fdMLLJPr/jig-github.png" />
